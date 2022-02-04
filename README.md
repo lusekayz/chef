@@ -1,3 +1,7 @@
 # The Master Chef is here!!
 
-We bake all your favourite Homemade Bakery treaties.
+We bake all your favourite Homemade treats.
+
+Please contact us for orders.
+
+			# SIYABONGA
